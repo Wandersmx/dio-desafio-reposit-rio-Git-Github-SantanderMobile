@@ -19,6 +19,14 @@ Uma breve introdução a personagem com história e skills.
 
 
 
+## Artoria Pendragon (Alter) :fire:
+
+
+
+Uma breve introdução a personagem com história e skills.
+
+
+
 _(Obs: Esse pequeno trabalho é apenas forma de aprendizado, o uso do nome, imagem e marca do personagem fazem parte da AniplexTM e TypeMoon.)_
 
 
